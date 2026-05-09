@@ -1,4 +1,4 @@
-
+Get the ultimate Raycast for macOS app with Raycast for macOS professional App: app-uninstaller & startup-manager. Featuring app-uninstaller and startup-manager, it's the best
 
 
 
